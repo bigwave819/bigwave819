@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Kina<br><br>👨‍💻 All of my projects are available at https://hirwa.onrender.com/<br><br>📫 How to reach me waveb6133@gmail.com<br><br>📄 Know about my experiences https://drive.google.com/file/d/1zkYO_PjVepvgF7GPN_6PRUcMcomxh8Jv/view?usp=drive_link<br><br>⚡ Fun fact teach me then I learn
+🔭 I’m currently working on Kina<br><br>👨‍💻 All of my projects are available at https://inzozilabs.vercel.app//<br><br>📫 How to reach me waveb6133@gmail.com<br><br>📄 Know about my experiences https://drive.google.com/file/d/1zkYO_PjVepvgF7GPN_6PRUcMcomxh8Jv/view?usp=drive_link<br><br>⚡ Fun fact teach me then I learn
 
 
 ## 🌐 Socials:
